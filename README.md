@@ -1,1 +1,1 @@
-# Nigerians-and-their-Salaryy-AI-Saturday-Data-Science-Project-
+# Nigerians-and-their-Salary,-AI-Saturday-Data-Science-Project-
